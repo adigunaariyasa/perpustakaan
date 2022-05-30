@@ -1,0 +1,5 @@
+1. Ida Ayu Cynthia Sutha Garga Dewi (200030130)
+2. I Putu Adiguna Ariyasa   	    (200030401)
+3. I Kadek Satya Wiradinata         (200030501)
+4. I Made Pandu Putra Riadi         (200030625)
+5. Fincer Tomi Rahmat Wijaya Lase   (200030636)
